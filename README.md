@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @martinovacc
-- 👀 I’m interested in computers and fast cars.
+- 👀 I’m interested in computers and great fast cars.
 - 💞️ I’m looking to collaborate on great projects
 - 📫 Feel free to DM me!
